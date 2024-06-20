@@ -1,14 +1,10 @@
 # DeepNude AI List
 
-# Best website
-* <b>[Nudify.me - Realistic Deepnude, Easy Nudify with Telegram Bot and Telegram Apps (recommended)](https://nudify.me/?utm_source=theinsaneapp.com&utm_medium=referral&utm_campaign=github_tool)</b>
-* <b>[Dreampaint.net - Nudify, Bukkake, Futanari, Tattoo and many more NSFW effects with AI (recommended)](https://www.dreampaint.net/?utm_source=github&utm_medium=paolinsta&utm_campaign=tools-list)</b>
-
-## Other websites
+## Websites
 * [PornGen.art](https://porngen.art)
 * [UndressPro.ai](https://undresspro.ai)
 * [Alt text](https://www.vancouvercoir.com/free-undress-ai)
-* [N8ked (recommended best service)](https://www.n8ked.app/)</b>
+* [N8ked](https://www.n8ked.app/)</b>
 * [Deep-Nude.AI](https://www.deep-nude.ai/)
 * [Deep-Fake.AI](https://www.deep-fake.ai/)
 * [NSFW AI Tools List](https://nsfw.tools/collections/all)
