@@ -1,9 +1,7 @@
 # DeepNude AI List
 
-# Best website
-* <b>[Nudify.me - Realistic Deepnude, Easy Nudify with Telegram Bot and Telegram Apps (recommended)](https://nudify.me/?utm_source=theinsaneapp.com&utm_medium=referral&utm_campaign=github_tool)</b>
-
 ## Websites
+* [Nudify.me](https://nudify.me/)
 * [Undressing.ai](https://undressing.ai)
 * [PornGen.art](https://porngen.art)
 * [UndressPro.ai](https://undresspro.ai)
@@ -17,7 +15,6 @@
 * [Undress.vip](https://undress.vip/)
 * [Undress-ai.app](https://undress-ai.app/)
 * [Dreampaint.net](https://dreampaint.net)
-* [Nudify.me](https://nudify.me/)
 * [NoDress.io](https://nodress.io)
 * [Undress Her](https://undressher.app)
 * [NudifyAI](https://nudify-ai.online/)
