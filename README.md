@@ -1,6 +1,11 @@
 # DeepNude AI List
 
-## Websites
+## Tested and recommended
+* [PornGen.art](https://porngen.art)
+* [Undresser.ai](https://undresser.ai)
+
+
+## Other Websites
 * [Undressing.ai](https://undressing.ai)
 * [PornGen.art](https://porngen.art)
 * [UndressPro.ai](https://undresspro.ai)
