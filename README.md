@@ -12,6 +12,7 @@
 * [N8ked](https://www.n8ked.app/)</b>
 * [Deep-Nude.AI](https://www.deep-nude.ai/)
 * [Deep-Fake.AI](https://www.deep-fake.ai/)
+* [DeepNude & DeepFake Tools Directory - NSFW AI](https://nsfwais.io/tag/Deep%20Nude)
 * [NSFW AI Tools List](https://nsfw.tools/collections/all)
 * [DailyFakes (NSFW Face Swap)](https://dailyfakes.com/)
 * [AI NSFW Tools](https://www.ainsfwtools.com/)
@@ -47,4 +48,4 @@
 * [OnlyBabes.AI](https://www.onlybabes.ai/)
 * [DeepNudeNow](https://deepnudenow.com/)
 * [NSFWartgenerator](https://www.nsfwartgenerator.ai/)
-* [NSFW AIs](https://nsfwais.io/)
+* [Largest NSFW AI Directory](https://nsfwais.io/)
