@@ -1,8 +1,4 @@
-# DeepNude AI List
-
-## Best website
-
-* <b>[N8ked (recommended best service)](https://www.n8ked.app/)</b>
+## <b>[N8ked (recommended best service)](https://www.n8ked.app/)</b>
 
 ## Websites
 * [Undressing.ai](https://undressing.ai)
