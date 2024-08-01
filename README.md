@@ -1,5 +1,5 @@
 ## <b>[N8ked (recommended best service)](https://www.n8ked.app/)</b>
-## <b>[Anchor "AI Girlfriend App". Our page- https://whatsthebigdata.com/best-ai-girlfriend-chatbot-apps/](https://whatsthebigdata.com/best-ai-girlfriend-chatbot-apps/)</b>
+## <b>[AI Girlfriend App](https://whatsthebigdata.com/best-ai-girlfriend-chatbot-apps/)</b>
 
 ## Websites
 * [Undresser.AI](https://undresser.ai)
